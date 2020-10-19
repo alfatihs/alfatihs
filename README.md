@@ -1,4 +1,4 @@
-### Hi every1!!! Welcome, take a look, give some feedback, enjoy! 👋
+### Hi every1!!! Welcome, take a look, give some feedbacks, enjoy! 👋
 
 First of all, let's start from my name. My name is Azmi Alfatih Shalahuddin. You can call me Azmi.
 I'm an 18 years old student from Bandung Institute of Technology. My Dream Campus since high school. And I live in South Tangerang City.
